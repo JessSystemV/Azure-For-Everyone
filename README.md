@@ -3,4 +3,4 @@
 Get fucked Innards
 
 
-Not Cracked yet, And it prolly has a rat.
+No Auth apparently? still haven't checked for a rat.
